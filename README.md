@@ -1,1 +1,0 @@
-# basantapaudel.com
